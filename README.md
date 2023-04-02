@@ -1,16 +1,25 @@
 # HIDDENZ-S-HVNC-RAT-L-FET-ME
 🔷HIDDENZ'S HVNC RAT LİFETİME 🔷 
 
+
 Hidden Desktop
+
 Hidden Browser
+
 Browse Profile
+
 Hidden CMD
 
 Power Shell
+
 Download and execute
+
 Hidden Miner
+
 Hidden Start Up
+
 Encrypted Connection
+
 Mutex
 
 https://t.me/+ybI0Nm6UEn0wOTM0
